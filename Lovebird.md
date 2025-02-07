@@ -1,0 +1,4 @@
+# Lovebird
+![Lovebird](https://upload.wikimedia.org/wikipedia/commons/5/50/Agapornis_-probably_a_hybrid-5i.jpg)
+
+**Lovebird** is the common name for the genus **_Agapornis_**, a small group of parrots in the Old World parrot family Psittaculidae. Of the nine species in the genus, all are native to the African continent, with the grey-headed lovebird being native to the African island of Madagascar. Social and affectionate, the name comes from the parrots' strong, monogamous pair bonding and the long periods which paired birds spend sitting together. Lovebirds live in small flocks and eat fruit, vegetables, grasses, and seeds. Some species are kept as pets, and several coloured mutations have been selectively bred in aviculture. The average lifespan is 10 to 12 years.
